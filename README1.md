@@ -24,7 +24,8 @@ Published: 2 days ago **bold**
 
 6. You help to optimise our planning with effort estimates
 
-[link] ( https://www.stepstones.com)
+
+[link]( https://www.stepstones.com)
 
 
 
